@@ -29,10 +29,24 @@ I honestly can talk about this for hours, but we're going to put an agenda toget
 
 ![wuki](./images/wuki-quote-transparent.png)
 
+---
+![bg right:50% 100%](https://i.stack.imgur.com/Ca4rh.png)
+
+# So how did I get into electronic music
+
+- 2005/08 - Progressive trance through the iTunes Radio
+- 2012/13 - EDM exploded onto the scene
+- 2016 - Had enough money to go to festivals and "explore"
+- 2018 - Underground goes mainstream and is accessible
+- 2022 - Create's a presentation on it (fully sold)
+---
+
+![img](https://pbs.twimg.com/media/CTYU9yGVAAA9Cse.jpg)
 
 ---
 
 ![bg right:40% 80%](https://i.pinimg.com/736x/fd/eb/cc/fdebcc184318a642165f45e8bb8ddd37.jpg)
+
 
 # So what is techno?
 The **formal definition** taken from Merriam Webster (online of course)
