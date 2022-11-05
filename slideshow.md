@@ -146,6 +146,14 @@ One of the most exciting things about techno is the gender diversity...
 - [Indira Paganotto - Spain](https://youtu.be/DN-FiG3K1ss?t=3928)
 
 ---
+![bg right:40% 80%](https://i.ytimg.com/vi/oFvqo1dil7M/maxresdefault.jpg)
+# Influential Artists
+One of the most exciting things about techno is the gender diversity...
+## [Nina Kraviz - Russia]()
+
+One of the main pioneers into the female dominated techno scene. She is ubiquitous with techno as being a trailblazer in the late 2000s. She's a force on the fashion scene.
+
+---
 
 # Musical Composition
 Everything in the studio becomes your music
@@ -173,6 +181,15 @@ They're try masters of tempo
 ## Exit Festival
 
 > The festival was founded in 2000 in Novi Sad, Serbia as a student movement, fighting for democracy and freedom in Serbia and the Balkans. After the Yugoslavian general election in 2000, Exit moved from the city's university park to the Petrovaradin Fortress in the same city in 2001. 
+
+---
+
+![bg right:40% 80%](https://edmidentity.com/wp-content/uploads/2018/06/Movment-Closing-Set-Katie-Laskowska-7W5A4235.jpg)
+
+# Festivals
+## Movement - Detroit
+
+> All of these festivals presented performances by musicians and DJs that emphasized the progressive qualities of the culture surrounding electronic music including the celebration of Detroit being the birthplace of the popular electronic music subgenre Techno.
 
 ---
 
