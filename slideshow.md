@@ -24,6 +24,14 @@ I honestly can talk about this for hours, but we're going to put an agenda toget
 
 ---
 
+![bg bottom:40% 80%]()
+# Our guiding mantra for today...
+
+![wuki](./images/wuki-quote-transparent.png)
+
+
+---
+
 ![bg right:40% 80%](https://i.pinimg.com/736x/fd/eb/cc/fdebcc184318a642165f45e8bb8ddd37.jpg)
 
 # So what is techno?
